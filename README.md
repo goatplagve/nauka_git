@@ -1,1 +1,1 @@
-modyfikuje sb ridmi 
+kerles uispers
