@@ -1,0 +1,1 @@
+modyfikuje sb ridmi 
